@@ -4,6 +4,7 @@
 
 |ref.|vytlačené|oprava|
 |---|---|---|
+|s. 3, Secondary language(s)||_(pridať:)_ English|
 |s. 9, pozn. 39|Christlichen|Chriſtlichen|
 |s. 35, pozn. 273|lat. impiis|lat. »impiis|
 |s. 79, záznam pre ÖBL|.̲|.|
