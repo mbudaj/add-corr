@@ -8,4 +8,5 @@
 |s. 9, pozn. 39|Christlichen|Chriſtlichen|
 |s. 35, pozn. 273|lat. impiis|lat. »impiis|
 |s. 65, pozn. 573|Kolb – Wengert (2000)|Kolb – Wengert (2000) aj Hund – Schneider (2021)|
+|s. 72, záznam 18, názov diela|Swornosti|Swornoſti|
 |s. 79, záznam pre ÖBL|.̲|.|
